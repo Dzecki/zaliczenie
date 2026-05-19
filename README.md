@@ -1,1 +1,1 @@
-# zaliczenie
+Oliwier Kostrzewski
